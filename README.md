@@ -2,7 +2,8 @@
 
 ![yofipramdita](img/img-profile.png)
 
-I'am currently work on **cicendo eye hospital**
-I'am currently learning **git**
-😊😊😊
+I'am currently work on **cicendo eye hospital**\
+I'am currently learning **git**\
+😊😊😊\
+😂😂😂
 
